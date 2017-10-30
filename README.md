@@ -1,5 +1,5 @@
 # Free Sounds
-Free tekno artist community: upload, listen and share. 10GB free space forever.
+**Free underground tekno** artist community: upload, listen and share.
 
 ## Mission
 
