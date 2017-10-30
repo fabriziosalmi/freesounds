@@ -3,7 +3,7 @@
 
 ## Mission
 
-> Why to pay for space when you can get free space and use your money for your equipment?
+> Why to pay for space when you can get enough free space and use your money for your equipment?
 
 [Free Sounds](https://sound.freeundergroundtekno.org) is the answer. Up to **10GB of free space** for any music artist or producer.
 
