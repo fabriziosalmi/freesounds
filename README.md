@@ -12,3 +12,9 @@
 - [Free Underground Tekno Facebook page](https://www.facebook.com/Free.Underground.Tekno.Radio/) have dozen thousands of addicted fans. 
 - Your music will be shared on [Free Underground Tekno channel on YouTube](https://www.youtube.com/user/INTONARUMORI2007) too!
 - _"You can push your stuff to the underground massive"_
+
+## Android application
+
+Android app is HTML5/CSS3 based.
+
+If you want to improve [the source code](https://github.com/fabriziosalmi/android_freesounds) or suggest new features **You are welcome :)**
