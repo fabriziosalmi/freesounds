@@ -9,7 +9,6 @@ Free tekno artist community: upload, listen and share. 10GB free space forever.
 
 ## Community
 
-[Free Underground Tekno Facebook page](https://www.facebook.com/Free.Underground.Tekno.Radio/) have dozen thousands of addicted fans. 
-Your music will be shared on [Free Underground Tekno channel on YouTube](https://www.youtube.com/user/INTONARUMORI2007) too!
-
-_"You can push your stuff to the underground massive"_
+- [Free Underground Tekno Facebook page](https://www.facebook.com/Free.Underground.Tekno.Radio/) have dozen thousands of addicted fans. 
+- Your music will be shared on [Free Underground Tekno channel on YouTube](https://www.youtube.com/user/INTONARUMORI2007) too!
+- _"You can push your stuff to the underground massive"_
