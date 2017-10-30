@@ -1,2 +1,15 @@
 # freesounds
-Free Underground Tekno artist community: upload, listen, share. 10GB free forever.
+Free tekno artist community: upload, listen and share. 10GB free space forever.
+
+## Mission
+
+> Why to pay for space when you can get free space and use your money for your equipment?
+
+Free Sounds is the answer. Up to **10GB of free space** for any music artist or producer.
+
+## Community
+
+Free Underground Tekno Facebook page have dozen thousands of addicted fans. 
+Your music will be shared on Free Underground Tekno channel on YouTube too!
+
+_"You can push your stuff to the underground massive"_
