@@ -7,6 +7,8 @@
 
 [Free Sounds](https://sound.freeundergroundtekno.org) is the answer. Up to **10GB of free space** for any music artist or producer.
 
+[Listen Free Sounds #1 playlist](https://sound.freeundergroundtekno.org/index.php?a=playlist&id=1&name=free-sounds)
+
 ## Community
 
 - [Free Underground Tekno Facebook page](https://www.facebook.com/Free.Underground.Tekno.Radio/) have dozen thousands of addicted fans. 
